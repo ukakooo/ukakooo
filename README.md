@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Herco!
 - 👀 I’m mainly interested in Graphic Designing
 - 🌱 I’m currently learning how to code & stuff :)
-- 📫 How to reach me? idk lmao
+- 📫 How to reach me? idk lmao. Give me your hand ig
 - 😄 Pronouns: He/Him!
 - ⚡ Here's a Fun fact: There isn't.
 
