@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Herco!
+- 👋 Hi, I’m Harutoo!
 - 👀 I’m mainly interested in Graphic Designing
 - 🌱 I’m currently learning how to code & stuff :)
 - 📫 How to reach me? idk lmao. Give me your hand ig
